@@ -1,8 +1,3 @@
--  Hi, I’m @TheChenXI , you can also called me kcy7(it means Kiss Clever You 7 times)
--  I'm only a student who wants to succeed but always failed...
+-  Hi, I’m @TheChenXI 
 
-If we can , I hope I can make friends with you .
--  All I experienced have been carved into my mind ,reminding me that things come better soon...
--  How to reach me ...
-mail:creyx@qq.com Kcy7@kcy7.xyz
 
